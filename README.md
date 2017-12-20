@@ -1,3 +1,3 @@
 # Rahul Ramesh
 Personal Site.
-Background image by: https://twitter.com/1041uuu
+Background image by: https://twitter.com/1041uuu .
